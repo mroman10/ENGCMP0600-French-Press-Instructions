@@ -1,6 +1,6 @@
 # How to Brew a Cup of French Press Coffee
 ###### by Maya Román
-There are many ways to make a good cup of coffee, the following are instructions for making coffee with a french press. This method produces coffee that is more "full bodied" than typical drip coffee.
+There are many ways to make a good cup of coffee, the following are instructions for making coffee with a french press. This method produces coffee that contains different, fuller flavors compared to typical drip coffee.
 #### Required Materials/Ingredients
   - a french press
   - water, enough to fill your french press plus some more
